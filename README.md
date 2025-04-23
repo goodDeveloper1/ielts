@@ -21,7 +21,7 @@
 
 ## Support
 
-For any questions or feedback, please contact us at support@ieltsapp.com.
+For any questions or feedback, please contact us at Telegram.
 
 ## Stay Connected
 
